@@ -16,3 +16,5 @@ Tutorial on how to use it and Please read it:
 5.And Voila Vape-V4.10 injected
 
 If you have any problem regarding this crack just ask me and i will gladly help you.
+
+It doesnt work it was an old crack for the people saying you got ratted if you really got ratted then it was not by me i just found this crack and posted it here
